@@ -1,6 +1,6 @@
 # Covid-19-Project
 
-Visit this link to see the stages to completing this project. https://www.youtube.com/watch?v=fx2N7XmCRZ4
+Visit this link to see the stages to completing this project. https://youtu.be/T1GAW4ibLjQ
 
 # Coronavirus disease (COVID-19)
 
